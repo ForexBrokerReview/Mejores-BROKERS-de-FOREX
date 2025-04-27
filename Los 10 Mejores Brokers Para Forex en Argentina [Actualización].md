@@ -18,7 +18,7 @@
 
 💎 [XTB.com](https://link-pso.xtb.com/pso/zrUCY) 📢 [Regístrate ya](https://link-pso.xtb.com/pso/CgswI)
 
-💎 [Deriv.com](https://track.deriv.com/_CqcB1Pzy79RUrSHPGq2lJWNd7ZgqdRLk/1/ 📢 [Regístrate ya](https://track.deriv.com/_CqcB1Pzy79RUrSHPGq2lJWNd7ZgqdRLk/1/) 
+💎 [Deriv.com](https://track.deriv.com/_CqcB1Pzy79RUrSHPGq2lJWNd7ZgqdRLk/1/) 📢 [Regístrate ya](https://track.deriv.com/_CqcB1Pzy79RUrSHPGq2lJWNd7ZgqdRLk/1/) 
 
 ---
 
